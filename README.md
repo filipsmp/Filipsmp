@@ -1,7 +1,7 @@
 ### About me
 
 
-**filipsmp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**filipsmp** is a ✨ _special_ ✨ brand that is into Ecommerce and Tech services
 
 Here are some ideas to get you started:
 
